@@ -8,5 +8,8 @@
   ### Assignment 3:
   In this assignment, we listen the talk that about the presenter's working experience. They share about their experience and give us reminder to enhance our skills, so we could get more opportunity on the career. Besides that, I realized that my writing skills are very weak. Therefore, I will enhance on it.
 
+   ### PC Assemble:
+  This is my first time to learn about how to set up the computer hardware in this lab. This is good for me because I should know this basic knowledge early and understand that what components of the computer works. Luckily that time a guy know about this thing already, and he taught us how to assemble it. Hence, it is a fresh experience to me.
+
   ### Design Thinking Project:
   This is the big project in the semester one. In this project, our group have to think about what thing we should do. I noticed that I really need to think critically, so my idea would be more innovative. Fortunatly, my group help me to share the workload, so we can complete the task in time. Even the things that we made are not totally perfect, but we have a good team sprit.
