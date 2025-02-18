@@ -8,6 +8,9 @@
   ### Assignment 3:
   In this assignment, we listen the talk that about the presenter's working experience. They share about their experience and give us reminder to enhance our skills, so we could get more opportunity on the career. Besides that, I realized that my writing skills are very weak. Therefore, I will enhance on it.
 
+  ### Assignment 4：
+  In the last assignment in semester 1, I think it is more easy to do compared to the other assignment. For the topic of this assignment, we took part the talk about the architecture robot from the company ROSO, robotic solution. We learned that how the strongest robot can design the building's outlook with the special shape. It will look more interactive when they put these building into the public. We glad to have a chance to know more about it.
+
    ### PC Assemble:
   This is my first time to learn about how to set up the computer hardware in this lab. This is good for me because I should know this basic knowledge early and understand that what components of the computer works. Luckily that time a guy know about this thing already, and he taught us how to assemble it. Hence, it is a fresh experience to me.
 
